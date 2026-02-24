@@ -1,1 +1,1 @@
-# Mael-terms-of-use
+# Mael-terms-of-service
